@@ -1,6 +1,7 @@
 # EnglishResources
 
 A1
+【全135集【看小猪佩奇学英语】小猪佩奇开口说英语！135集沉浸式学习，趣味启蒙不枯燥，轻松拿捏地道表达～】 https://www.bilibili.com/video/BV1pJ7hzQE5y/?share_source=copy_web&vd_source=2438ff3b9042b3b7944a312a73f5c0ad
 
 【小猪佩奇 第1季 全共52集 外挂字幕 适合初学者 无片头片尾】 
 https://www.bilibili.com/video/BV17JgVzVELc/?share_source=copy_web&vd_source=2438ff3b9042b3b7944a312a73f5c0ad
