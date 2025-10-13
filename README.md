@@ -1,6 +1,13 @@
 # EnglishResources
 
 A1
+
+【英语口语】看电影学英语 口语核心词汇 雅思托福口语听力
+https://www.bilibili.com/video/BV1Ce4y1t7rx?spm_id_from=333.1387.favlist.content.click
+
+新概念英语第一册 全书更新完 Leo老师讲解
+https://www.bilibili.com/video/BV1xa411J7jJ/?spm_id_from=333.1387.upload.video_card.click
+
 【全135集【看小猪佩奇学英语】小猪佩奇开口说英语！135集沉浸式学习，趣味启蒙不枯燥，轻松拿捏地道表达～】 https://www.bilibili.com/video/BV1pJ7hzQE5y/?share_source=copy_web&vd_source=2438ff3b9042b3b7944a312a73f5c0ad
 
 【小猪佩奇 第1季 全共52集 外挂字幕 适合初学者 无片头片尾】 
