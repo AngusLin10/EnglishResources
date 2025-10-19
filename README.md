@@ -1,8 +1,11 @@
 # EnglishResources
 
 A1
-volka bilibili 非官方合集版
+Volka 非官方合集版
 https://www.bilibili.com/video/BV1BsWwz7Eeo
+
+Bob 非官方合集版
+https://www.bilibili.com/video/BV1bE411k78N
 
 【英语口语】看电影学英语 口语核心词汇 雅思托福口语听力
 https://www.bilibili.com/video/BV1Ce4y1t7rx?spm_id_from=333.1387.favlist.content.click
