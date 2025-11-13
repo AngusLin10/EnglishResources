@@ -1,6 +1,10 @@
 # EnglishResources
 
 A1
+
+Sight Words 100
+https://www.bilibili.com/video/BV18Y4y1p7Qa
+
 Volka 非官方合集版
 https://www.bilibili.com/video/BV1BsWwz7Eeo
 
