@@ -18,9 +18,6 @@ https://www.bilibili.com/video/BV15D42157wi
 
 ## A1
 
-Sight Words 100
-https://www.bilibili.com/video/BV18Y4y1p7Qa
-
 Volka 非官方合集版
 https://www.bilibili.com/video/BV1BsWwz7Eeo
 
@@ -31,33 +28,6 @@ https://www.bilibili.com/video/BV1bE411k78N
 
 【小猪佩奇 第1季 全共52集 外挂字幕 适合初学者 无片头片尾】 
 https://www.bilibili.com/video/BV17JgVzVELc
-
-【小猪佩奇 第2季 全共54集 外挂字幕】 
-https://www.bilibili.com/video/BV1UigVzaEZa
-
-【小猪佩奇 第3季 全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV146gVzfEi2
-
-【小猪佩奇 第4季 全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV1r3gVzUEzY
-
-【小猪佩奇 第5季 1-26全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV1WUtVzNEdV
-
-【小猪佩奇 第5季 27-52全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV1LNt5zWEz7
-
-【小猪佩奇 第6季 1-13全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV1P3tPzzEVL
-
-【小猪佩奇 第6季 14-26全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV1DqtPzDEhM
-
-【小猪佩奇 第6季 27-52全共52集 外挂字幕】 
-https://www.bilibili.com/video/BV1JwtjzPEFs
-
-【小猪佩奇 第7季 全共65集 外挂字幕适合英语初学者的启蒙动画】 
-https://www.bilibili.com/video/BV1qBgGz3EvS
 
 ## A2
 
