@@ -7,13 +7,16 @@ https://www.bilibili.com/video/BV1Ce4y1t7rx
 
 ## 新概念英语
 
-第一册 全书更新完 Leo老师讲解
+第一册
 https://www.bilibili.com/video/BV1xa411J7jJ
 
-第一册 練聽力
+第二册-1
+https://www.bilibili.com/video/BV1cu411r7pw/
+
+第一册聽力
 https://www.bilibili.com/video/BV1Xq421A7rm
 
-第二册 練聽力
+第二册聽力
 https://www.bilibili.com/video/BV15D42157wi
 
 ## A1
