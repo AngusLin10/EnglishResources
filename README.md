@@ -5,6 +5,9 @@
 【英语口语】看电影学英语 口语核心词汇 雅思托福口语听力
 https://www.bilibili.com/video/BV1Ce4y1t7rx
 
+走遍美國
+https://www.bilibili.com/video/BV1pe411c7X9
+
 ## 新概念英语
 
 第一册
